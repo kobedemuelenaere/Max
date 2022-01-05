@@ -9,4 +9,4 @@ Twas een prachtige tijd met hem. Een tijd dat we nooit gaan vergeten.
 \
 \
 \
-Vandaag (5 januari) zijn er nog labo resultaten toegekomen. Daarop blijkt dat maxje is gestorven aan een accute lymfatische leukemie. Een zeldzame en aggresieve aandoening waar weinig tegen gedaan kan worden.
+Vandaag (5 januari) zijn er nog labo resultaten toegekomen. Daarop blijkt dat Maxje is gestorven aan een accute lymfatische leukemie. Een zeldzame en aggresieve aandoening waar weinig tegen gedaan kan worden.
