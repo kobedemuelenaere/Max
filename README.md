@@ -6,9 +6,7 @@ Tis plots heel snel achteruit gegaan en we hebben dit nooit zien aankomen. De Ma
 We zullen hem enorm missen, maar zijn blij zijn maatje te zijn geweest.
 Twas een prachtige tijd met hem. Een tijd dat we nooit gaan vergeten.
 
- 
- 
- 
-
-
+⠀⠀
+⠀
+⠀
 Vandaag (5 januari) zijn er nog labo resultaten toegekomen. Daarop blijkt dat maxje is gestorven aan een accute lymfatische leukemie. Een zeldzame en aggresieve aandoening waar weinig tegen gedaan kan worden.
